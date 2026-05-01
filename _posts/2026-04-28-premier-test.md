@@ -39,6 +39,26 @@ Un Bond qui surveille son sommeil et boit du soda "safe" n'est plus un agent sec
 Et après quoi? Un bond en survêtement adidas, en chaussures nike, avec une casquette Polar skate commandant une Pina colada sans alcool ?
 Dans un monde vidéo ludique en pleine mutation ou chaque intervenants cherche à de démarquer. Est il vraiment judicieux de s'attaquer avec un tel manque de respect à une icone et à sa boisson tout aussi iconique?
 
+Et toujours pour le "plaisir", nous n allons pas laisser coca tranquil.  
+**Le dossier Russe (2022 - 2026) : La métamorphose de façade**  
+À l'instar de ses concurrents, la firme a officiellement suspendu ses activités en Russie après l'invasion de l'Ukraine. Toutefois, l'infrastructure est restée intacte :  
+Le stratagème "Dobry Cola" : L'embouteilleur local, Coca-Cola HBC (dont la maison mère détient 21 %), a simplement rebaptisé le produit. En 2024 et 2025, "Dobry Cola" est devenue la boisson la plus vendue du pays, permettant de conserver les parts de marché et d'utiliser les mêmes usines.  
+Importations parallèles : Des enquêtes de début 2026 confirment que le "vrai" Coca-Cola continue d'inonder le marché russe via des circuits d'importation massifs depuis le Kazakhstan et la Géorgie, sans que la firme ne semble s'y opposer avec la vigueur requise.  
+**L'Or Bleu : Accaparement et pollution des ressources**  
+La gestion de l'eau est le talon d'Achille historique et persistant de la compagnie :  
+Le drame du Chiapas (Mexique) : Dans cette région, il est souvent plus facile et moins onéreux d'acheter un soda que de l'eau potable. La firme est accusée de pomper plus d'un million de litres d'eau par jour, asséchant les puits des populations autochtones et provoquant une explosion des cas de diabète.  
+Pollution Plastique Systémique : Pour la septième année consécutive en 2025, Coca-Cola a été désignée "premier pollueur plastique mondial" par le mouvement Break Free From Plastic. Malgré les promesses de "monde sans déchets", la production de plastique vierge a continué de croître de 3 % par an entre 2022 et 2025.  
+**Droits Humains et Pratiques de Travail**  
+Le groupe traîne des dossiers particulièrement sombres concernant sa chaîne d'approvisionnement :  
+L'affaire "Killer Coke" en Colombie : Des accusations persistantes (bien que contestées juridiquement) font état de liens entre des embouteilleurs locaux et des paramilitaires pour intimider, voire éliminer, des leaders syndicaux.  
+Travail des enfants dans le sucre : Des rapports d'investigation récents pointent du doigt des plantations de canne à sucre aux Philippines et au Brésil, fournisseurs directs du groupe, où le travail des mineurs reste une réalité structurelle pour maintenir des coûts bas.  
+**Influence et Santé Publique : La science sous contrat**  
+La firme a longtemps utilisé des méthodes de lobbying agressives pour protéger ses intérêts commerciaux au détriment de la santé publique :  
+Désinformation nutritionnelle : Le scandale du Global Energy Balance Network a révélé comment Coca-Cola a financé des scientifiques pour minimiser le rôle du sucre dans l'obésité, en mettant l'accent uniquement sur le manque d'exercice physique.  
+Ciblage des mineurs : Malgré les engagements éthiques, des campagnes marketing agressives continuent de cibler les adolescents dans les pays en développement, là où les réglementations sur les sodas sont les plus permissives.  
+
+Quand nous voyons avec quelles socitées les ayants droits de Ian Flemming, nous avons hâtes de voire les partenerais avec Bayer ou encore Monsanto. 
+
 Le contrat est simple, IO Interactive déféque sur les fans et coca se fait un maximum d'argent. Car Le véritable partenariat se joue dans les supermarchés. Des bouteilles noires et or en édition limitée, déjà en circulation, comportent des QR codes. Ils permettent de débloquer cinq tenues (skins) spécifiques pour habiller l'agent 007 dans le jeu :  
 First Class : Un smoking élégant classique.  
 Observant Spy : Une tenue de filature discrète.  
@@ -57,6 +77,6 @@ Skyfall : Pourquoi les marques s'arrachent James Bond au cinéma : https://www.c
 James Bond boit de la bière sans alcool quand il travaille: https://lareclame.fr/heineken-jamesbond-228655  
 Ce qu'Heineken ne vous dit pas (ITW Olivier van Beemen) - Une bière et Jivay: https://youtu.be/FbkaQ77vLGI?si=vyS1Rqqj3b9fiGQR  
 Coca et le jeu: https://www.coca-cola.com/fr/fr/offerings/zero-caffeine-zero-worries  
-Livre : Heineken en Afrique : Une multinationale déchaînée, Olivier van Beemen (Éditions Hurst/Points).
-Enquêtes : Follow the Money (Plateforme néerlandaise d'investigation, dossiers 2023-2026).
-Rapports : Amnesty International et diverses ONG sur la responsabilité sociétale des entreprises (RSE).
+Livre : Heineken en Afrique : Une multinationale déchaînée, Olivier van Beemen (Éditions Hurst/Points).  
+Enquêtes : Follow the Money (Plateforme néerlandaise d'investigation, dossiers 2023-2026).  
+Rapports : Amnesty International et diverses ONG sur la responsabilité sociétale des entreprises (RSE).  
